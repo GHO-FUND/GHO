@@ -11,5 +11,10 @@ Is it a responsibility to return the missed soil back to the roofs of buildings 
 As a cryptocurrency besides GHO. Such objectives like granting, guaranteeing, and lending loans for most vulnerable communities.
 
 [GHO and EMS](https://t.me/emsaction).
+
 [GHO Workspace](https://ghospace.slack.com).
+
 [GHO on Github](https://github.com/GHO-FUND).
+
+# GHO and EMS in brief:
+[PROGRESS](https://cutt.ly/ACzE5ey).
