@@ -18,3 +18,6 @@ As a cryptocurrency besides GHO. Such objectives like granting, guaranteeing, an
 
 # GHO and EMS in brief:
 [PROGRESS](https://cutt.ly/ACzE5ey).
+
+# Who can appky and how?
+Coming soon!
