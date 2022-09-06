@@ -16,6 +16,9 @@ As a cryptocurrency besides GHO. Such objectives like granting, guaranteeing, an
 
 [GHO on Github](https://github.com/GHO-FUND).
 
+[GHO on Discord](https://cutt.ly/CCx2bfC).
+
+
 # GHO and EMS in brief:
 [PROGRESS](https://cutt.ly/ACzE5ey).
 
