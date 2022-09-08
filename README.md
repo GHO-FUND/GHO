@@ -2,8 +2,11 @@
 The Green House Roof Solutuon: More oxygen and less CO2.
 
 "Giải Pháp GHO có thể trị giá đến trên một triệu tỷ đô la Mỹ, với đồng xanh trên mái nhà."
+Như vậy, GHO rất có giá trị và có thể mang lại cho thế giởi cả mấy chục triệu tỷ đồng, tương ứng với khoảng trên một triệu tỷ đô la Mỹ. Khi đó, sẽ không có thêm khí các bon níc, không có ai sống trong cảnh đói nghèo, và không chống lại thiên nhiên.
 
 "The GHO can value more than one million billions of U.S. Dollars, with green fields on the roofs."
+ons, one hundreds seventy-four millions U.S. Dollars).
+     And now we realize that GHO has much value in fact. It is worth of some tens millions billions Vietnamese dong, or equivalent to more than one million billions U.S. Dollars. Then, no more CO2, zero hungerers, and not against the nature.
 
 [Read more](https://cutt.ly/UCQzkat).
 
