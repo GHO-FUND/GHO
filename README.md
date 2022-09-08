@@ -49,3 +49,7 @@ According to pubs.iied.org, there are roughly 100 nations (50% of the world), wh
 
 # Who can apply and how?
 Coming soon!
+
+
+# Developer discussion:
+Please take time to discuss the issues related [the developer](https://cutt.ly/0CE0Pla) if you think it's necessary.
