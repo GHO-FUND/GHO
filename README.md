@@ -22,12 +22,14 @@ Is it a responsibility to return the missed soil back to the roofs of buildings 
 Environment: "Where we are in"
 In the cause to Take care of the Earth.
 
-As a cryptocurrency besides GHO. Such objectives like granting, guaranteeing, and lending loans for 'green fields on the roofs' in most vulnerable communities by climate change.
-According to pubs.iied.org, there are roughly 100 nations (50% of the world), where the resilience has been degraded, are most vulnerable to climate change.
-
 EMS là tiền kỹ thuật số để hỗ trợ thực thi GHO. GHO sẽ nhắm đến việc tài trợ, bảo lãnh, và cho vay vốn để 'đưa đồng xanh lên mái nhà' ở khu vực bị tác động nhiều bởi biến đổi khí hậu.
 Theo tổ chức pubs.iied.org, có khoảng 100 quóc gia (50% của thế giới), nơi mà khả năng chịu đựng đã giảm đi, là các quốc gia chịu tác động mạnh từ biến đổi khí hậu.
 
+As a cryptocurrency besides GHO. Such objectives like granting, guaranteeing, and lending loans for 'green fields on the roofs' in most vulnerable communities by climate change.
+According to pubs.iied.org, there are roughly 100 nations (50% of the world), where the resilience has been degraded, are most vulnerable to climate change.
+
+
+[EMS White Paper](https://cutt.ly/TCzT4tS).
 
 [GHO and EMS](https://t.me/emsaction).
 
