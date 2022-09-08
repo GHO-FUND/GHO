@@ -22,6 +22,7 @@ Is it a responsibility to return the missed soil back to the roofs of buildings 
 
 # EMS:
 [Environment: "Where we are in"](https://t.me/emsaction)
+
 In the cause to Take care of the Earth.
 
 EMS là tiền kỹ thuật số để hỗ trợ thực thi GHO. GHO sẽ nhắm đến việc tài trợ, bảo lãnh, và cho vay vốn để 'đưa đồng xanh lên mái nhà' ở khu vực bị tác động nhiều bởi biến đổi khí hậu.
