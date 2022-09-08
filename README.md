@@ -1,5 +1,6 @@
 # GHO:
 Giải Pháp "Kết cấu Mái nhà xanh" (GHO: 2-2022-00206, 26/05/2022): Nhiều ô xi hơn và ít khí các bon níc hơn. 
+
 The "Green House Roof Solution" (GHO: 2-2022-00206, 26 May 2022): More oxygen and less CO2.
 
 "Giải Pháp GHO có thể trị giá đến trên một triệu tỷ đô la Mỹ, với đồng xanh trên mái nhà." 
