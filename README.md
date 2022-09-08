@@ -1,5 +1,6 @@
 # GHO:
-The Green House Roof Solutuon: More oxygen and less CO2.
+Giải Pháp "Kết cấu Mái nhà xanh" (GHO: 2-2022-00206, 26/05/2022): Nhiều ô xi hơn và ít khí các bon níc hơn. 
+The "Green House Roof Solution" (GHO: 2-2022-00206, 26 May 2022): More oxygen and less CO2.
 
 "Giải Pháp GHO có thể trị giá đến trên một triệu tỷ đô la Mỹ, với đồng xanh trên mái nhà." 
 Như vậy, GHO rất có giá trị và có thể mang lại cho thế giởi cả mấy chục triệu tỷ đồng, tương ứng với khoảng trên một triệu tỷ đô la Mỹ. Khi đó, sẽ không có thêm khí các bon níc, không có ai sống trong cảnh đói nghèo, và không chống lại thiên nhiên.
